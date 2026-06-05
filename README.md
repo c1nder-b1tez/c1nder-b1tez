@@ -10,3 +10,4 @@
 <p align="center">⤹ DW, MD, WC, AJR, B&L, TADC</p>
 
 <p align="center">pfp art : PuiOi on pin !</p>
+<p align="center">hi! im Cinder. you might've seen me on Pony Town a couple of times. Cuds are welcome, hides are welcome, group cuddles are welcome, boops are welcome.</p>
