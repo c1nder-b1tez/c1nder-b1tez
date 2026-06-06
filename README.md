@@ -1,4 +1,9 @@
 <p align="center">" チェリー チェリー チェリーボンボン !! "</p>
+
+<p align="center">
+<img src="https://file.garden/aZUb6QkyAioQfA6V/dandys%20world%20blinkies/character%20blinkies/ScrapsBlinkie.gif" alt="Scraps"/>
+</p>
+
 <p align="center">
 <img src="https://64.media.tumblr.com/29e5ce77543b689166b344023bc9022b/92d26ae36e95ebe0-2b/s2048x3072/cb45075517054714c25b864d1eb6423979f8dd1a.pnj" alt="Scraps"/>
 </p>
@@ -21,6 +26,9 @@
 <p align="center">|⟢ Interest !</p>
 <p align="center">⤹ DW, MD, WC, AJR, B&L, TADC</p>
 
+<p align="center">
+<img src="https://s3.ezgif.com/tmp/ezgif-33a0aae186d38f8e.gif" alt="Scraps"/>
+</p>
 
 <p align="center">hi! im Cinder. you might've seen me on Pony Town a couple of times. Cuds are welcome, hides are welcome, group cuddles are welcome, boops are welcome.</p>
 <p align="center">
